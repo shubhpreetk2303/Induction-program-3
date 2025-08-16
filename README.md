@@ -12,26 +12,7 @@ On August 2, 2025, Guru Nanak Dev Engineering College successfully conducted Day
 
 The event took place in the college auditorium and featured a series of insightful and value-driven sessions, thoughtfully curated to instill a strong academic and ethical foundation in the first-year students.
 
-🌟 Highlights of the Day
-🎤 Chief Guest Address by **Sardar Gurcharan Singh Grewal**
 
-The highlight of the day was the inspiring keynote delivered by:
-
-**👤 Sardar Gurcharan Singh Grewal**
-
-Member, Shiromani Gurdwara Parbandhak Committee (SGPC)
-
-Eminent member, Nankana Sahib Education Trust
-
-His powerful words served as a motivational beacon for students, urging them to:
-
-Stay grounded in moral values
-
-Pursue excellence with integrity and dedication
-
-Maintain a balance between spirituality, character, and academic ambition
-
-🗣️ “Success means nothing if it comes at the cost of your ethics.” – Sardar G.S. Grewal
 
 **🧪 Live Experiments with Dr. Jaswinder Singh**
 
